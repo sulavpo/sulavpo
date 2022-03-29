@@ -2,6 +2,7 @@
 - 👀 I’m interested in Flutter,Mobile app,Designing,Web Application
 - 🌱 I’m currently Studying Bachelor in Computer Science Information & Technology
 - 📫 How to reach me ...
+Mobile:+9779846776715
 
 Email:Sulupoudel.spp@gmail.com
 
